@@ -7,7 +7,7 @@
   <img width="260" height="100" src="https://i.ibb.co/pdbfx6M/Please-credit-dividers-and-make-sure-too-Credits-will-be-linked-shown-2.png">
 </p>
 
-$${we \space are \space forsaken}$$
+$${i \space heart \space my \space man}$$
 </p>
 <p align="left">
 $${she/her \space \space \space \space \space \space \space \space \space ✰ ✰ ✰ \space \space \space \space \space \space \space semiactive}$$
