@@ -15,3 +15,6 @@ $${she/her \space \space \space \space \space \space \space \space \space âœ° âœ
 <p align="center">
   <img width="1000" height="80" src="https://i.ibb.co/Nsj8wSS/Please-credit-dividers-and-make-sure-too-Credits-will-be-linked-shown.png">
 </p>
+
+ ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=sterecra) 
+
